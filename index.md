@@ -61,6 +61,5 @@ Love abundantly !!
         https://scholar.google.de/citations?user=VmAMtqAAAAAJ&hl=en
 
 
-### Contact
-        Email: vinod.bioinfo@gmail.com
+### Connect
         Twitter: @neoosho
