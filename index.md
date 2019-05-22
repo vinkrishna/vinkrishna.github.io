@@ -2,7 +2,7 @@
 
 Relax!! Just take a deep breath! 
 
-I have no plan to bring in you in a high-attention mode, by extensively showcasing my portfolio, work, education or research. 
+I have no plan to bring you in a high-attention mode, by extensively showcasing my portfolio, work, education or research. 
 
 We all got only a finite moment in our lives. It is better than we just sit back, relax, and experience our breath. 
 
