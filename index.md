@@ -14,7 +14,7 @@ This is it!!!
 
 Rest doesn't really matter much at this very moment!
 
-{{site.url}}/vv.jpeg
+![image](/vv.jpeg)
 
 
 I immensely appreciate that you took time to visit this webapge while visiting this planet earth. 
