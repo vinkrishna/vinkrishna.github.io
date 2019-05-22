@@ -31,8 +31,10 @@ and
 
 exercise compassion and empathy! 
 
-and 
-Science!
+and
+
+appreciate imagination i.e. Science!
+
 
 ![image](/vv2.jpeg)
 
