@@ -66,7 +66,7 @@ Love abundantly !!
 
 
 ### Science
-        My scientific contributions to humanity: 
+        scientific contributions: 
         https://scholar.google.de/citations?user=VmAMtqAAAAAJ&hl=en
 
 
