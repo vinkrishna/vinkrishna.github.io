@@ -21,11 +21,16 @@ I immensely appreciate that you took time to visit this webapge while visiting t
 
 Let's make our planet earth more beautiful. 
 
-Live green
-Appreciate organic
-Plant trees 
+Live green!
+
+Appreciate organic!
+
+Plant trees !
+
 and 
-exercise compassion and empathy. 
+
+exercise compassion and empathy! 
+
 
 ![image](/vv2.jpeg)
 
