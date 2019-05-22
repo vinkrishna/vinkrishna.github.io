@@ -1,37 +1,58 @@
-## Welcome to GitHub Pages
+## Welcome! 
 
-You can use the [editor on GitHub](https://github.com/vinkrishna/vinkrishna.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+Relax!! Just take a deep breath! 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+I have no plan to stress you by showcasing my work, education or research. 
 
-### Markdown
+You got a finite moment in your life. It is better than you just sit back, and relax, and experience your breath. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Do it now!!
 
-```markdown
-Syntax highlighted code block
+This is the moment of phenomenological awareness!!
 
-# Header 1
-## Header 2
-### Header 3
+This is it!!! 
 
-- Bulleted
-- List
+Rest doesn't really matter!
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
-```
+Thank you so much for taking the time to visit my webpage. I immensely appreciate that you took time while visiting this planet earth. 
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+Let's make our planet earth more beautiful. 
 
-### Jekyll Themes
+Live green
+Appreciate organic
+Plant trees 
+and 
+exercise compassion and empathy. 
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/vinkrishna/vinkrishna.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
-### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+We all are amazing humans with a little variance of education, job, geographical location, color, language, intelligence, wisdom, perception, knowledge, religion, and political beliefs!! Hold no discrimination because of these reasons, or also others! 
+
+Your awareness holds immense magic. 
+
+Spark the other human lives with your work, passion, optimism, and kindness! 
+
+The awareness, kindness, compassion, and empathy is the new cult. 
+
+follow it!! 
+
+If you follow enough!! 
+
+You will reach to yourself!! and at the same time to everyone else!!!
+
+
+
+
+Celebrate, rejoice !! 
+and 
+Love!!
+
+
+
+My scientific contributions to humanity: 
+https://scholar.google.de/citations?user=VmAMtqAAAAAJ&hl=en
+
+Email: vinod.bioinfo@gmail.com
+Twitter: @neoosho
