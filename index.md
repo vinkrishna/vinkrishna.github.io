@@ -2,9 +2,9 @@
 
 Relax!! Just take a deep breath! 
 
-I have no plan to stress you by showcasing my work, education or research. 
+I have no plan to bring in you in a high-attention mode, by extensively showcasing my portfolio, work, education or research. 
 
-You got a finite moment in your life. It is better than you just sit back, and relax, and experience your breath. 
+We all got only a finite moment in our lives. It is better than we just sit back, relax, and experience our breath. 
 
 Do it now!!
 
@@ -12,7 +12,8 @@ This is the moment of phenomenological awareness!!
 
 This is it!!! 
 
-Rest doesn't really matter!
+Rest doesn't really matter much at this very moment!
+
 
 
 
@@ -26,6 +27,8 @@ Appreciate organic
 Plant trees 
 and 
 exercise compassion and empathy. 
+
+
 
 
 
