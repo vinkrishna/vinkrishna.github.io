@@ -1,4 +1,4 @@
-[title] Awarness is the next frontier for humanity
+                                [title] Awarness is the next frontier for humanity
 
 ## Welcome! 
 
@@ -53,8 +53,8 @@ Love!!
 
 
 
-#My scientific contributions to humanity: 
-[Link] https://scholar.google.de/citations?user=VmAMtqAAAAAJ&hl=en
+        #My scientific contributions to humanity: 
+        [Link] https://scholar.google.de/citations?user=VmAMtqAAAAAJ&hl=en
 
-Email: vinod.bioinfo@gmail.com
-Twitter: @neoosho
+        Email: vinod.bioinfo@gmail.com
+        Twitter: @neoosho
