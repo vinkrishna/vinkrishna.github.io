@@ -14,7 +14,7 @@ This is it!!!
 
 Rest doesn't really matter much at this very moment!
 
- {{site.url}} https://goo.gl/maps/zjq63VD3VCeUA6vF8  
+{{site.url}}/vv.jpeg
 
 
 I immensely appreciate that you took time to visit this webapge while visiting this planet earth. 
