@@ -1,5 +1,3 @@
-                                [title] Awarness is the next frontier for humanity
-
 ## Welcome! 
 
 Relax!! Just take a deep breath! 
@@ -53,7 +51,7 @@ Love!!
 
 
 
-        #My scientific contributions to humanity: 
+        ##My scientific contributions to humanity: 
         [Link] https://scholar.google.de/citations?user=VmAMtqAAAAAJ&hl=en
 
         Email: vinod.bioinfo@gmail.com
