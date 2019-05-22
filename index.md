@@ -1,4 +1,4 @@
-#Welcome! 
+### Welcome! 
 
 Relax!! Just take a deep breath! 
 
@@ -14,8 +14,7 @@ This is it!!!
 
 Rest doesn't really matter much at this very moment!
 
-![Life is Life](https://www.google.com/maps/contrib/108700662895036462102/photos/@48.519043,9.058083,3a,75y,90t/data=!3m7!1e2!3m5!1sAF1QipPNUij7P3TR7_tWsCrS5MpvDXeqN1R2S4nvDnsw!2e10!6shttps:%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipPNUij7P3TR7_tWsCrS5MpvDXeqN1R2S4nvDnsw%3Dw365-h273-k-no!7i2048!8i1536!4m3!8m2!3m1!1e1){:class="img-responsive"}
-
+ {{site.url}} https://goo.gl/maps/zjq63VD3VCeUA6vF8  
 
 
 I immensely appreciate that you took time to visit this webapge while visiting this planet earth. 
