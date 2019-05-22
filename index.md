@@ -27,31 +27,33 @@ Plant trees
 and 
 exercise compassion and empathy. 
 
-
-
+![image](/vv2.jpeg)
 
 
 We all are amazing humans with a little variance of education, job, geographical location, color, language, intelligence, wisdom, perception, knowledge, religion, and political beliefs!! Hold no discrimination because of these reasons, or also others! 
 
 Your awareness holds immense magic. 
 
-Spark the other human lives with your work, passion, optimism, and kindness! 
+![image](/vv3.jpeg)
 
-The awareness, kindness, compassion, and empathy is the new cult. 
+
+Spark the other human lives with your work, passion, optimism, kindness, compassion and empathy! 
+
+
 
 follow it!! 
 
-If you follow enough!! 
 
-You will reach to yourself!! and at the same time to everyone else!!!
+You will connect to everyone and same time to yourself!! 
 
-
+![image](/vv4.jpeg)
 
 
 Celebrate, rejoice !! 
 and 
-Love!!
+Love abundantly !!
 
+![image](/vv5.jpeg)
 
 
 ### Science
