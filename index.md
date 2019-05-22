@@ -17,7 +17,7 @@ Rest doesn't really matter much at this very moment!
 ![image](/vv.jpeg)
 
 
-I immensely appreciate that you took time to visit this webapge while visiting this planet earth. 
+I immensely appreciate that you took time to have a look at this webapge while visiting planet earth. 
 
 Let's make our planet earth more beautiful. 
 
@@ -31,6 +31,8 @@ and
 
 exercise compassion and empathy! 
 
+and 
+Science!
 
 ![image](/vv2.jpeg)
 
